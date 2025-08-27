@@ -1,0 +1,1 @@
+# Responsabilidade-Compartilhada-Azure
